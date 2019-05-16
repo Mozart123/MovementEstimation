@@ -1,1 +1,1 @@
-Due to my graduation project and class projects, I can't spend time on this one right now.
+Due to my graduation project and class projects, I don't have time for this project right now.
